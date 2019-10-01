@@ -26,3 +26,4 @@
 [高科大](https://www.nkust.edu.tw/index.php)
 
 ![NKFUST](182513897.png "高科大第一校區")
+![AAA](https://www.seoseo.com.tw/thumbnail/mammals-3218028_640.jpg/343x235x90x2 "死狐狸")
